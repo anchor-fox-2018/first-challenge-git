@@ -17,3 +17,4 @@ Ekspektasi saya setelah graduate adalah mulai bekerja, having my skin in the gam
 
 [//]: # (Apakah ada hal lain yang ingin disampaikan? Bila ada, kamu bebas untuk menuliskannya)
 
+Saya merasa hacktiv8 memiliki kesempatan untuk menjadi center job placement bagi programmer (atau posisi IT-related). Semangat guys! :)
